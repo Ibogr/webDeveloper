@@ -1,2 +1,2 @@
 # webDeveloper
-## by Ibrahim Gurses
+## by Ibrahim Gurses from Edirne, Turkiye
